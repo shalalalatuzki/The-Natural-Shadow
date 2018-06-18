@@ -1,3 +1,3 @@
 # The-Natural-Shadow
-Pseudo-bionic art 
+Pseudo-bionic  
 To explore the relationship between man and nature
